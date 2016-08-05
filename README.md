@@ -1,1 +1,1 @@
-# NeJ0vskY
+# Autorskie TXT BY NEJ0VSKY
